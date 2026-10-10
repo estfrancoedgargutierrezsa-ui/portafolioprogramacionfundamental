@@ -1,1 +1,2 @@
 # portafolioprogramacionfundamental
+franco gutierrez sandoval 
